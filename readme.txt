@@ -1,5 +1,5 @@
 ==================================================================================================
-Criado por : Dante Lima Dantas
+Criado por : Dante
 não ouse copiar seu comédia!
 
 
